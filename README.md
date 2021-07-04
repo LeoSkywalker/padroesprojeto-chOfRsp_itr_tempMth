@@ -1,0 +1,1 @@
+# padroesprojeto-chOfRsp_itr_tempMth
